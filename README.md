@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Angeliekjuh
-- 👀 I’m interested in video games, anime & graphic design.
+- 👀 I’m interested in video games, anime, marketing & graphic design.
 - 🌱 I’m currently learning to code my own WordPress website!
 - 💞️ I’m looking to collaborate on [coming soon!]
 - 📫 How to reach me [coming soon!]
